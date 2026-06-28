@@ -1,2 +1,0 @@
-
-Projects and Case Studies
